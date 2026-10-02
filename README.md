@@ -29,7 +29,7 @@ I bridge the gap between complex quantitative models and practical business inte
 ### 📬 Let's Connect!
 I am currently accepting freelance contracts, consulting work, and collaborative projects.
 
-* 💼 **LinkedIn:** [://linkedin.com](https://://linkedin.com)
+* 💼 **LinkedIn:** www.linkedin.com/in/sharon-maphosa-61553b384
 * 📧 **Email:  **sharonmaphosa0304@gmail.com**  
 * 🌍 **GitHub: **github.com/sharonmaphosa0304-spec**
 
